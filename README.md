@@ -7,4 +7,4 @@
             him⠀/ them , meowmeowme
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=cozywarmth&color=000000&style=for-the-badge&label=CUDDLES+COUNT)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=cozywarmth&color=000000&style=for-the-badge&label=CUDDLE+COUNT)
