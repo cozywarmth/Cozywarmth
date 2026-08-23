@@ -8,3 +8,9 @@
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=cozywarmth&color=000000&style=for-the-badge&label=CUDDLES+COUNT)
+
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31ar5j35k35qleyepxfolnf5rwje&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ar5j35k35qleyepxfolnf5rwje&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ffffff&bar_color_cover=false&mode=light">
+  </a>
+</p>
