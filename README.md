@@ -6,6 +6,13 @@
             02 ⠀june ⠀🎂 , ⠀6teen !
             him⠀/ them , meowmeowme
 
+
+            i can sometimes be chill
+            but sometimes can be fun
+            and reckless;
+            would mostly regret it —
+            after it all sinks in me
+
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=cozywarmth&color=3b2a20&style=for-the-badge&label=CUDDLE+COUNT)
 <p align="center"> ִ ⠀ᚐ⠀ ࣪⠀⠀✦⠀ ࣪ ⠀ᚐ⠀ ִ </p>
 
