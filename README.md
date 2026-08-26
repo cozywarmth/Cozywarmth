@@ -2,16 +2,18 @@
 
 ![image](https://github.com/cozywarmth/Cozywarmth/blob/0c71ba40455213f7258b297ccfc275412ed9e60b/Tak%20berjudul152_20260825064433.png)
 
+            ⠀
             kev⠀/⠀kevin ⠀or⠀ osamu
             02 ⠀june ⠀🎂 , ⠀6teen !
             him⠀/ them , meowmeowme
+
 
             i can sometimes be chill
             but sometimes can be fun
             and reckless;
             would mostly regret it —
             after it all sinks in me
-            
+            ⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=cozywarmth&color=3b2a20&style=for-the-badge&label=CUDDLE+COUNT)
 <p align="center"> ִ ⠀ᚐ⠀ ࣪⠀⠀✦⠀ ࣪ ⠀ᚐ⠀ ִ </p>
