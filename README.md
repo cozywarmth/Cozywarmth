@@ -11,9 +11,8 @@
             i can sometimes be chill
             but sometimes can be fun
             and reckless; depending
-            on how people around me
-            acts with me / mood ————
-            (maybe)..
+            on mood/ how people acts 
+            around me —— (maybe)....
 
 
             I use "offchat" on name
