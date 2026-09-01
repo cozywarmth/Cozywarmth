@@ -12,7 +12,8 @@
             but sometimes can be fun
             and reckless; depending
             on how people around me
-            acts with me ( maybe )..
+            acts with me / mood ————
+            (maybe)..
 
 
             I use "offchat" on name
