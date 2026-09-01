@@ -10,9 +10,10 @@
 
             i can sometimes be chill
             but sometimes can be fun
-            and reckless;
-            would mostly regret it —
-            after it all sinks in me
+            and reckless.
+            more comfy with party or
+            wisp chat than public —
+            chat
             ⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=cozywarmth&color=3b2a20&style=for-the-badge&label=CUDDLE+COUNT)
