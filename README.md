@@ -10,10 +10,16 @@
 
             i can sometimes be chill
             but sometimes can be fun
-            and reckless.
-            more comfy with party or
-            wisp chat than public —
-            chat
+            and reckless; depending
+            on how people around me
+            acts with me ( maybe )..
+
+
+            I use "offchat" on name
+            because I'm more comfy w
+            party or wisp chat at the
+            moment or just don't want
+            to talk at the moment!!
             ⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=cozywarmth&color=3b2a20&style=for-the-badge&label=CUDDLE+COUNT)
