@@ -20,6 +20,7 @@
             party or wisp chat at the
             moment or just don't want
             to talk at the moment!!
+            PS.im emotionally detached.
 
 
             if I'm not resp/replying,
