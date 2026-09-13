@@ -37,4 +37,4 @@
 
 ![image](https://github.com/cozywarmth/Cozywarmth/blob/a9e621eba71a2964b29eb7d547dfeffa3efa6d73/Tak%20berjudul153_20260825070931.png)
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Schoolbell&size=24&duration=4000&pause=49&color=FFFFFF&center=true&vCenter=true&multiline=true&width=440&height=220&lines=%22I+knew+you+were+gonna%E2%80%94;%E2%80%94break+my+heart.;But%2C+a+part+of+me;really+hoped+you+wouldn't.+;But+oh+does+fate+hates+me.;But+I+don't+blame+him+either%E2%80%94;For+not+returning+it+back.%22" alt="Typing SVG" /></a>
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Schoolbell&duration=4000&pause=20&color=FFFFFF&center=true&vCenter=true&multiline=true&width=330&height=115&lines=Cause'+I+fall+right+into+you%2C;Don't+know+what+to+do+to;Make+you+fall+for+me.)](https://git.io/typing-svg)
